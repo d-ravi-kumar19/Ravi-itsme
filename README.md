@@ -1,7 +1,7 @@
 👋 Hi there! ✌️I'm Ravi Kumar Dobbali✌️
 - 😎 I'm an AIML undergrad student at Osmania University, Hyderabad
 - 🤖 I'm ML/AI enthuasist
-- 🌱 I’m currently applying my skils on realworld projects
+- 🚀 Embarking on a journey of exploration and skill application, I am dedicated to tackling real-world projects and cultivating innovation! 🌱💡
 - 📫 Reach out to me at dravikumar4614@gmail.com
 - 😇 Looking to improve my skills
 
